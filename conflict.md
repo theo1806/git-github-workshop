@@ -1,1 +1,1 @@
-ig you have any questions, clap your hands.
+ig you have any questions, please raise your hands or google it.
